@@ -1,0 +1,1 @@
+# pool-payout-structure
